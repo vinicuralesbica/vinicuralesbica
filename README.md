@@ -7,3 +7,6 @@
 -🥷🥷🥷 PARA ENTRA EM CONTATO CMG 📧
 
 -martinsjau.com@gmail.com
+
+
+![](https://media1.tenor.com/m/2rSkw129oacAAAAd/boom-mike.gif)
